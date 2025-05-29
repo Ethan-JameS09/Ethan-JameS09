@@ -30,7 +30,7 @@ I'm always looking to learn, collaborate, and grow! Feel free to reach out or fo
 
 - 🌐 [GitHub](https://github.com/Ethan-JameS09)
 - 📝 Resume: *Coming Soon*
-- 🔗 [LinkedIn] (www.linkedin.com/in/ethan-james-stidhum-9b0944351)
+- 🔗 [LinkedIn](www.linkedin.com/in/ethan-james-stidhum-9b0944351)
 
 ---
 
