@@ -28,8 +28,9 @@ As I am unsure of what I'd like to persue in the future, my plans are to gain as
 
 I'm always looking to learn, collaborate, and grow! Feel free to reach out or follow my journey:
 
-- 🌐 [GitHub](https://github.com/Ethan-JameS09)   
+- 🌐 [GitHub](https://github.com/Ethan-JameS09)
 - 📝 Resume: *Coming Soon*
+- 🔗 [LinkedIn] (www.linkedin.com/in/ethan-james-stidhum-9b0944351)
 
 ---
 
